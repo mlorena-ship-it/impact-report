@@ -1,2 +1,1 @@
-Raport-Financiar-Wellbeing-2025.html
-Analiza impact wellbeing financiar 
+Pagină privată. Conținutul este accesibil doar prin link direct.
